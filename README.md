@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @GeoLei2u
-- 👀 I’m interested in ROBLOX
+- 👀 I’m interested in Gorilla Tag
 - 🌱 I’m currently learning NOTHING
 - 💞️ I’m looking to collaborate on NOTHING
 - 📫 How to reach me NOTHING
